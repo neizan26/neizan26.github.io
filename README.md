@@ -1,1 +1,1 @@
-# neizanphoto26.github.io
+# neizan26.github.io
